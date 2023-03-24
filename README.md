@@ -2,7 +2,7 @@
 - 👀 I’m interested in cinematography and film making
 - 🌱 I’m currently learning unreal engine 5
 - 💞️ I’m looking to collaborate on brief 3d films 
-- 📫 How to reach me @crackedskull_ leviathan (Instagram)
+- 📫 How to reach me @blue_spirit1366 (Instagram)
 
 <!---
 Yesterday3/Yesterday3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
